@@ -14,7 +14,7 @@ I am twenty two years old and studying computer science at the [University of te
 
 - 🇺🇸 I can speak and understand English without problem (TOEIC: 885 points).
 
-- 🎵 [Certificat d’Études Musicales ](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwiUt9HxvuzyAhUDxoUKHctFDwAQFnoECAIQAQ&url=https%3A%2F%2Fwww.culture.gouv.fr%2FMedia%2FThematiques%2FMusique%2FFiles%2FFiche-pedagogique-A3-3-cycle&usg=AOvVaw1pqy6PkMnOxgpiLYRqvjXG) (13+ years of saxophone). I am starting transverse flute.
+- 🎵 [Certificat d’Études Musicales ](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwiUt9HxvuzyAhUDxoUKHctFDwAQFnoECAIQAQ&url=https%3A%2F%2Fwww.culture.gouv.fr%2FMedia%2FThematiques%2FMusique%2FFiles%2FFiche-pedagogique-A3-3-cycle&usg=AOvVaw1pqy6PkMnOxgpiLYRqvjXG) (15+ years of saxophone). I am starting transverse flute.
 
 - 🎮 Who does not like a good relaxing video game once in a while ?
 
