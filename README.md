@@ -8,8 +8,6 @@ I am twenty two years old and studying computer science at the [University of te
 
 - 💻 I focus on software development, backend and mobile apps.
 
-- 🌐 I am searching for an end-of-studies internship starting early 2022.
-
 - 🇫🇷 French is my native language.
 
 - 🇺🇸 I can speak and understand English without problem (TOEIC: 885 points).
