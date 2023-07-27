@@ -1,5 +1,5 @@
 # Hello and welcome to my Github profile !
-I am 24 and studying computer science at the [University of technology of Belfort-Montbéliard](https://www.utbm.fr) for my last year.
+I am 24 and currently working on a new confidential project at [Caddev - A work4Cad Company](https://www.w4c.group) since february 2022.
 
 - <img src="https://content.linkedin.com/content/dam/me/news/en-us/icons/Social_Icons_linkedin.svg.original.svg" alt="LinkedIn icon" width="16"/> Find my LinkedIn profile [here](https://www.linkedin.com/in/lucas-parisot/).
 
